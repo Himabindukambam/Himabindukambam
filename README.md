@@ -1,4 +1,4 @@
-- 👋 Hi, I’m kambamHimabindu
+- 👋 Hi, @I’m kambamHimabindu
 - 👀 I’m interested in LEARNING NEW SKILLS
 - 🌱 I’m currently STUDYING B.TECH AT SRMIST,CHENNAI.
 - 💞️ MY SKILLS 
